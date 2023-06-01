@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @KillerMagma02
+- 👋 Hi, I’m Aditya Shinde
 - 👀 I’m interested in Gaming, Photography, reading Novels
 - 🌱 I’m currently learning Computer Engineering 
 - 🎉 My current achivement is that I am a part of Robotics Club in College taking Part in DD Robocon Tournament
